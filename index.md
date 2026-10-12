@@ -4,6 +4,5 @@
  Multimedia Programmer
  UI/UX Engineer
  Разработчик мобильных приложений с насыщенным медиа функционалом
- ![aiai](https://www.magnific.com/ru/free-photo/close-up-man-writing-code-laptop_7621115.htm#fromView=keyword&page=1&position=0&uuid=40876a55-44a9-43ff-bd97-846239ab3d2d&track=ais_hybrid&query=%D0%90%D0%B9%D1%82%D0%B8)
-
+ ![aiai](https://encrypted-tbn3.gstatic.com/images?q=tbn:ANd9GcSce4dc07ZERO5RLn0jVcXVl5cV6MrIaxyGka9bp5VIOQV_AysV)
 
